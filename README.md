@@ -32,7 +32,7 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
    Other faiths promise you might come back as a king, a spiritual leader, or at least a housecat. In **Anishism**, reincarnation is more like life’s “Ctrl+Z”—you might come back, but probably as something slightly worse than before, like a secondhand stapler or a deflated bouncy castle who knows but def.
 
 8. **Literal Afterlife Directions**  
-   Many religions offer a clear roadmap to the afterlife—complete with golden gates, harps, or a fiery underworld. In **Anishism**, we provide only the vaguest Google Maps pin titled “Somewhere Over Yonder” and wish you luck with that spiritual GPS signal.
+   Many religions offer a clear roadmap to the afterlife—complete with golden gates, harps, or a fiery underworld. In **Anishism**, we provide only the vaguest Google Maps pin titled “Somewhere Over Yonder” and wish you luck with that spiritual GPS signal its more of google maps where you gotta get through river yeah that's road .
 
 9. **No need of Huge Temples/Cathedrals/Mosques**  
      In Anishism, our holy sites include places like AnishHub, Anish's hamster, your commode, and even your messy backlit keyboard. These are the places where true spiritual revelations happen... usually by accident.
