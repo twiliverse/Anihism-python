@@ -2,7 +2,7 @@
 perfect platform for you to add your own spin to an already misguided belief systems in world!
 ## Introduction
 
-**Anishism** is a revolutionary, open-source religion designed for those who demand total freedom—to modify, misconstrue, and occasionally update the ever-expanding tangle of its doctrines. Its followers, known fondly as **Anishians**, are encouraged to take the wheel of their faith and steer it straight into the nearest Gand. Here, we’ve embraced the timeless art of religious uncertainty and proudly wrapped it in a veneer of confused flexibility, for all who wish to add their personal flavor to this swirling vortex of spiritual ambiguity.
+**Anishism** is a revolutionary, open-source religion designed for those who demand total freedom—to modify, misconstrue, and occasionally update the ever-expanding tangle of its doctrines. Its followers, known fondly as **Anishians**, are encouraged to take the wheel of their faith and steer it straight into the nearest G. Here, we’ve embraced the timeless art of religious uncertainty and proudly wrapped it in a veneer of confused flexibility, for all who wish to add their personal flavor to this swirling vortex of spiritual ambiguity.
 
 In Anishism, Absurdity is celebrated, rituals are optional (and often nonsensical), and Dogmas are to be regarded with suspicion and a raised eyebrow. We aren’t aiming for enlightenment—why reach for clarity when you can comfortably revel in a fog of delightful bewilderment?
 
