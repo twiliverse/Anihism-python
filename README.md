@@ -55,7 +55,7 @@ Becoming an Anishian is as simple as falling into an existential crisis ( yeah t
    Think you’ve uncovered divine wisdom at the bottom of a cereal box? Submit it. We might ignore it for a while, but eventually, someone will notice, and it might just become a central tenet.
 
 3. **Choose Your Level of Commitment**  
-   Whether you're a casual observer or fully committed to part-time devotion, Anishism welcomes you. Feel free to join, wander off, or linger in a state of mild curiosity. We’ve mastered the art of non-commitment.
+   Whether you're a casual observer or fully committed to part-time devotion, Anishism welcomes you. Feel free to join, wander off, or linger in a state of mild curiosity. We’ve mastered the art of non-commitment smiley face.
 
 ## The Hierarchy of the Misguided
 
