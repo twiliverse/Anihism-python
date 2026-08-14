@@ -20,7 +20,7 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
    Worship how you like—or don’t. Whether it’s through creating memes, engaging in interpretive dance, or simply staring at the ceiling, all methods of reverence (or irreverence) are equally valid. There are no wrong ways to not try alright its way of living not serving on what is told by world.
 
 4. **Open-Source Doctrine**  
-   Don’t like something? Change it. Bored with a ritual? Rewrite it. All doctrines are mutable, because, let’s be honest, permanence is overrated. Feel free to create your own offshoot of Anishism and claim it was always that way. We’ll nod along.
+   Don’t like something? Change it. Bored with a ritual? Rewrite it. All doctrines are mutable, because, let’s be honest, permanence is overrated. Feel free to create your own offshoot of Anishism and claim it was always that way. We’ll nod along alright.
 
 5. **The Book of Random Edits**  
    Our sacred text, co-written by thousands of people who don’t know each other and, frankly, don’t care. If it doesn’t make sense, it belongs in the Book of Random Edits.
