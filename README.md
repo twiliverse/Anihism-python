@@ -83,5 +83,5 @@ Your path to spiritual fulfillment—or something vaguely resembling it—starts
 ## Licensing and Legal Stuff
 
 Anishism is distributed under the **“Take It Seriously” License (TISL)**. You are free to remix, revise, and redistribute our beliefs—just don’t expect us to keep track of any of it.
-
+Prolly what i am doing 
 ---
