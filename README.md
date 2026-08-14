@@ -38,7 +38,7 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
      In Anishism, our holy sites include places like AnishHub, Anish's hamster, your commode, and even your messy backlit keyboard. These are the places where true spiritual revelations happen... usually by accident hmm dont hmm it is hm.
 
 10. **Miracles on Demand**  
-   Forget waiting for miracles—Anishians recognize the miraculous in the mundane! Your phone didn’t run out of battery during a Netflix binge? That’s a sign. Found parking on a crowded street? Divine intervention. In fact, anything that mildly improves your day is a miracle, and we highly recommend you take full credit for it.
+   Forget waiting for miracles—Anishians recognize the miraculous in the mundane! Your phone didn’t run out of battery during a Netflix binge? That’s a sign. Found parking on a crowded street? Divine intervention. In fact, anything that mildly improves your day is a miracle, and we highly recommend you take full credit for it yeah thats angelic.
 
 ---
 
