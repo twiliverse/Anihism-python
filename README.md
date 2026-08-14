@@ -29,7 +29,7 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
    You’ve heard it before: if you believe hard enough (and donate generously), the universe will rain gold coins and sports cars upon you. In **Anishism**, we acknowledge that the only thing raining from the sky is bird poop. Instead of material wealth, we guarantee you’ll get... mildly amused. Maybe yeah that makes sense .
 
 7. **Reincarnation as an Upgrade**  
-   Other faiths promise you might come back as a king, a spiritual leader, or at least a housecat. In **Anishism**, reincarnation is more like life’s “Ctrl+Z”—you might come back, but probably as something slightly worse than before, like a secondhand stapler or a deflated bouncy castle.
+   Other faiths promise you might come back as a king, a spiritual leader, or at least a housecat. In **Anishism**, reincarnation is more like life’s “Ctrl+Z”—you might come back, but probably as something slightly worse than before, like a secondhand stapler or a deflated bouncy castle who knows but def.
 
 8. **Literal Afterlife Directions**  
    Many religions offer a clear roadmap to the afterlife—complete with golden gates, harps, or a fiery underworld. In **Anishism**, we provide only the vaguest Google Maps pin titled “Somewhere Over Yonder” and wish you luck with that spiritual GPS signal.
