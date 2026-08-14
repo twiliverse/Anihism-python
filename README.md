@@ -14,7 +14,7 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
    Anishians are firm believers in the beauty of contradictions and the art of saying much while meaning little. The Holy Muddle is our core belief: clarity is overrated, and confusion is, at least, entertaining that drives curiosity.
 
 2. **Divine Procrastination**  
-   Urgency? Not here. Procrastination isn’t just tolerated; it’s exalted. In Anishism, putting things off is a sacred practice. Deadlines are mythical creatures, and half-finished tasks? Well, they’re practically complete in spirit.
+   Urgency? Not here. Procrastination isn’t just tolerated; it’s exalted. In Anishism, putting things off is a sacred practice. Deadlines are mythical creatures, and half-finished tasks? Well, they’re practically complete in spirit why are laughing here its real as i say .
 
 3. **Flexible Worship**  
    Worship how you like—or don’t. Whether it’s through creating memes, engaging in interpretive dance, or simply staring at the ceiling, all methods of reverence (or irreverence) are equally valid. There are no wrong ways to not try.
