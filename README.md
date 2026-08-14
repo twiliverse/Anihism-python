@@ -46,7 +46,7 @@ With Anishism, not only can you throw out the rulebook, but you can also replace
 
 ## Getting Started
 
-Becoming an Anishian is as simple as falling into an existential crisis:
+Becoming an Anishian is as simple as falling into an existential crisis ( yeah thats why i did from my ani mentor ):
 
 1. **Clone the Faith**  
    Download our repository of beliefs (URL pending) and start tweaking. It’s designed for you to fork—because why not?
