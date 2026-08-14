@@ -1,5 +1,5 @@
 # Anihism-python
-perfect platform for you to add your own spin to an already misguided belief system!
+perfect platform for you to add your own spin to an already misguided belief systems in world!
 ## Introduction
 
 **Anishism** is a revolutionary, open-source religion designed for those who demand total freedom—to modify, misconstrue, and occasionally update the ever-expanding tangle of its doctrines. Its followers, known fondly as **Anishians**, are encouraged to take the wheel of their faith and steer it straight into the nearest Gand. Here, we’ve embraced the timeless art of religious uncertainty and proudly wrapped it in a veneer of confused flexibility, for all who wish to add their personal flavor to this swirling vortex of spiritual ambiguity.
