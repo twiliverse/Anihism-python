@@ -17,7 +17,7 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
    Urgency? Not here. Procrastination isn’t just tolerated; it’s exalted. In Anishism, putting things off is a sacred practice. Deadlines are mythical creatures, and half-finished tasks? Well, they’re practically complete in spirit why are laughing here its real as i say .
 
 3. **Flexible Worship**  
-   Worship how you like—or don’t. Whether it’s through creating memes, engaging in interpretive dance, or simply staring at the ceiling, all methods of reverence (or irreverence) are equally valid. There are no wrong ways to not try.
+   Worship how you like—or don’t. Whether it’s through creating memes, engaging in interpretive dance, or simply staring at the ceiling, all methods of reverence (or irreverence) are equally valid. There are no wrong ways to not try alright its way of living not serving on what is told by world.
 
 4. **Open-Source Doctrine**  
    Don’t like something? Change it. Bored with a ritual? Rewrite it. All doctrines are mutable, because, let’s be honest, permanence is overrated. Feel free to create your own offshoot of Anishism and claim it was always that way. We’ll nod along.
