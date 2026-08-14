@@ -8,7 +8,7 @@ In Anishism, Absurdity is celebrated, rituals are optional (and often nonsensica
 
 ## Core Principles
 
-While the tenets of Anishism are, at best, a starting suggestion, here are a few guiding principles—ripe for your immediate revision, of course:
+While the tenets of Anishism are, at best, a starting suggestion, here are a few guiding principles—ripe for your immediate revision if you want , of course:
 
 1. **The Holy Muddle**  
    Anishians are firm believers in the beauty of contradictions and the art of saying much while meaning little. The Holy Muddle is our core belief: clarity is overrated, and confusion is, at least, entertaining.
