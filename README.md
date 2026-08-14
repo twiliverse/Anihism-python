@@ -11,7 +11,7 @@ In Anishism, Absurdity is celebrated, rituals are optional (and often nonsensica
 While the tenets of Anishism are, at best, a starting suggestion, here are a few guiding principles—ripe for your immediate revision if you want , of course:
 
 1. **The Holy Muddle**  
-   Anishians are firm believers in the beauty of contradictions and the art of saying much while meaning little. The Holy Muddle is our core belief: clarity is overrated, and confusion is, at least, entertaining.
+   Anishians are firm believers in the beauty of contradictions and the art of saying much while meaning little. The Holy Muddle is our core belief: clarity is overrated, and confusion is, at least, entertaining that drives curiosity.
 
 2. **Divine Procrastination**  
    Urgency? Not here. Procrastination isn’t just tolerated; it’s exalted. In Anishism, putting things off is a sacred practice. Deadlines are mythical creatures, and half-finished tasks? Well, they’re practically complete in spirit.
