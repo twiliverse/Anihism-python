@@ -23,7 +23,7 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
    Don’t like something? Change it. Bored with a ritual? Rewrite it. All doctrines are mutable, because, let’s be honest, permanence is overrated. Feel free to create your own offshoot of Anishism and claim it was always that way. We’ll nod along alright.
 
 5. **The Book of Random Edits**  
-   Our sacred text, co-written by thousands of people who don’t know each other and, frankly, don’t care. If it doesn’t make sense, it belongs in the Book of Random Edits.
+   Our sacred text, co-written by thousands of people who don’t know each other and, frankly, don’t care. If it doesn’t make sense, it belongs in the Book of Random Edits in 4k.
 
 6. **The Prosperity Gospel**  
    You’ve heard it before: if you believe hard enough (and donate generously), the universe will rain gold coins and sports cars upon you. In **Anishism**, we acknowledge that the only thing raining from the sky is bird poop. Instead of material wealth, we guarantee you’ll get... mildly amused. Maybe.
