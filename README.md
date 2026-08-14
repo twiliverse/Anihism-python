@@ -26,7 +26,7 @@ While the tenets of Anishism are, at best, a starting suggestion, here are a few
    Our sacred text, co-written by thousands of people who don’t know each other and, frankly, don’t care. If it doesn’t make sense, it belongs in the Book of Random Edits in 4k.
 
 6. **The Prosperity Gospel**  
-   You’ve heard it before: if you believe hard enough (and donate generously), the universe will rain gold coins and sports cars upon you. In **Anishism**, we acknowledge that the only thing raining from the sky is bird poop. Instead of material wealth, we guarantee you’ll get... mildly amused. Maybe.
+   You’ve heard it before: if you believe hard enough (and donate generously), the universe will rain gold coins and sports cars upon you. In **Anishism**, we acknowledge that the only thing raining from the sky is bird poop. Instead of material wealth, we guarantee you’ll get... mildly amused. Maybe yeah that makes sense .
 
 7. **Reincarnation as an Upgrade**  
    Other faiths promise you might come back as a king, a spiritual leader, or at least a housecat. In **Anishism**, reincarnation is more like life’s “Ctrl+Z”—you might come back, but probably as something slightly worse than before, like a secondhand stapler or a deflated bouncy castle.
